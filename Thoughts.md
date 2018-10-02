@@ -6,3 +6,4 @@ One of things that I struggled with was remembering how to add a photo onto a re
 
 Other than that, I had a fine time doing the assignment. It may have been useful to have a list of instructions for that issue though.
 
+Also, the word count was very considerate. It was just enough for me to cover the important aspects of the subject, but not so mucht that I felt very overwhelmed.
